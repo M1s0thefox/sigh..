@@ -14,7 +14,7 @@ I am also a Yumeshipper! Telamon(Non-sharing/Voidsharing), Ratthew(Non-sharing),
 
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWK4qSaeTvg2vgY3ZelxcRr7nrjdm8P0iHD9kLeNGbfg&amp;s=10" alt="neon 🍉 comms open on X: &quot;// slightly(?) suggestive lazy #c00lpizza thing i jus wanted to post something&quot; / X"/>
 
-# PEAK SECTION FOR JUST OUR FRIEND RAY'S ART!! x3
+# PEAK SECTION FOR JUST OUR FRIEND @unexp404 ART!!(GO FOLLOW THEM!!) x3
 <img width="1707" height="2085" alt="image" src="https://github.com/user-attachments/assets/0d90fb8d-d145-49a9-a5b2-6c5e2972aa6a" />
 <img width="1847" height="1881" alt="image" src="https://github.com/user-attachments/assets/8962d255-dfff-4a92-9df9-75563299c31f" />
 <img width="1847" height="1797" alt="image" src="https://github.com/user-attachments/assets/69235959-1302-4f6d-a493-38f531f4b977" />
