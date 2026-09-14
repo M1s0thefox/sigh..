@@ -18,3 +18,6 @@ I am also a Yumeshipper! Telamon(Non-sharing/Voidsharing), Ratthew(Non-sharing),
 <img width="1707" height="2085" alt="image" src="https://github.com/user-attachments/assets/0d90fb8d-d145-49a9-a5b2-6c5e2972aa6a" />
 <img width="1847" height="1881" alt="image" src="https://github.com/user-attachments/assets/8962d255-dfff-4a92-9df9-75563299c31f" />
 <img width="1847" height="1797" alt="image" src="https://github.com/user-attachments/assets/69235959-1302-4f6d-a493-38f531f4b977" />
+<img src="https://media.discordapp.net/attachments/1546321183522168856/1548584933201543258/20260913_101253.jpg?ex=6aa8405b&amp;is=6aa6eedb&amp;hm=03de2888397752d7481638c007731c73fa6eb748fe39edb3f5e9cd479bfeff28&amp;=&amp;format=webp&amp;width=901&amp;height=1024" alt="Image"/>
+	<img src="https://media.discordapp.net/attachments/1546321183522168856/1548604990359212162/20260913_113306.jpg?ex=6aa85309&amp;is=6aa70189&amp;hm=c9d42ed15d451cec2971c19e652c5eda42c5b66c94ec8d16de3d4e54261c2264&amp;=&amp;format=webp&amp;width=770&amp;height=1024" alt="Image"/>
+
